@@ -19,24 +19,27 @@ Description.
 always keeping out 
 children of narcissus 
 staging life pretenders 
+
 twisted benders of mind 
 
 gaslight running out 
+
 here to take a lesson
 so concealed and subtle
 brujas casting spelled opinions
-till i’m rigged and outta picture
+till i’m rigged and raptured
 
 there were days 
 when i gave my soul
+
 returned damn wrecked
 maybe not intended 
-but they knew the effects, 
+but they knew side (the) effects, 
 
 sliced through the neck
 with thoughts 
 bleeding straight to cup
-of thing you made me do
+of things you let me do
 
 now i’m spilling that 
 
