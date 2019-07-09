@@ -10,7 +10,7 @@ Description.
 [FREE] Ghostemane type beat Crawl (prod by.$kinny Fiend)
 https://www.youtube.com/watch?v=TyFZg6NFdpA
 
-**Title:** x / **Featuring:** x
+**Title:** Children of Narcissus / **Featuring:** MOTHNODE
 
 **Production:** x / **Lyrics:** x
 
