@@ -19,18 +19,18 @@ https://www.youtube.com/watch?v=TyFZg6NFdpA
 ```
 
 [CHORUS]
-always keeping out children of narcissus 
-staging life pretenders twisted benders of mind 
-gaslight running out, here to take a lesson
-so concealed and subtle brujas 
-casting spelled opinions
-till i’m rigged and raptured
-there were days when i gave my soul
-returned damn wrecked, maybe not intended 
-but they knew side (the) effects
-sliced through the neck with thoughts 
-bleeding straight to cup of things 
-you let me do, now i’m spilling that 
+ALWAYS KEEPIN' OUT CHILDREN OF NARCISSUS 
+STAGING LIFE PRETENDERS, TWISTED BENDERS OF MIND 
+GASLIGHT RUNNING OUT, HERE TO TAKE A LESSON
+SO CONCEALED AND SUBTLE BRUJAS 
+CASTING SPELLED OPINIONS
+TILL I'M RIGGED AND RAPTURED
+THERE WERE DAYS WHEN I GAVE MY SOUL
+RETURNED DAMN WRECKED, MAYBE NOT INTENDED 
+BUT THEY knew (saw) THE SIDE EFFECTS
+SLICED THROUGH THE NECK WITH THOUGHTS 
+BLEEDING STRAIGHT TO CUP OF THINGS
+YOU LET ME DO, NOW I'M SPILLING THAT
 
 [VERSE]
 
@@ -44,26 +44,26 @@ you let me do, now i’m spilling that
 till i’m out and free
 
 [CHORUS]
-always keeping out children of narcissus 
-staging life pretenders twisted benders of mind 
-gaslight running out, here to take a lesson
-so concealed and subtle brujas 
-casting spelled opinions
-till i’m rigged and raptured
-there were days when i gave my soul
-returned damn wrecked, maybe not intended 
-but they knew side (the) effects
-sliced through the neck with thoughts 
-bleeding straight to cup of things 
-you let me do, now i’m spilling that 
+ALWAYS KEEPIN' OUT CHILDREN OF NARCISSUS 
+STAGING LIFE PRETENDERS, TWISTED BENDERS OF MIND 
+GASLIGHT RUNNING OUT, HERE TO TAKE A LESSON
+SO CONCEALED AND SUBTLE BRUJAS 
+CASTING SPELLED OPINIONS
+TILL I'M RIGGED AND RAPTURED
+THERE WERE DAYS WHEN I GAVE MY SOUL
+RETURNED DAMN WRECKED, MAYBE NOT INTENDED 
+BUT THEY knew (saw) THE SIDE EFFECTS
+SLICED THROUGH THE NECK WITH THOUGHTS 
+BLEEDING STRAIGHT TO CUP OF THINGS
+YOU LET ME DO, NOW I'M SPILLING THAT 
 
 [VERSE]
 SIGN OF DAYS WHEN I CHOOSE MY ROAD
 FOR MY OWN SAKE, FACING THE ENLIGHTENMENT 
-OVER NEWLY FOUND IGNORANT (they knew side (the) effects)
+OVER NEWLY FOUND ignorant? (they knew side (the) effects)
 BROKE THROUGH THE CRACK WITH FORCED )sliced through the neck with thoughts 
 FULFILLING AN AGENDA bleeding straight to cup of things 
-away from you, now i’m doing that
+AWAY FROM YOU, now i’m doing that
 
 YOUR DEAD BODY
 ```
