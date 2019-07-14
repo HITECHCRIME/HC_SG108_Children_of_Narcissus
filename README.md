@@ -56,8 +56,12 @@ gaslight running out, here to take a lesson
 so concealed and subtle brujas 
 casting spelled opinions
 till i’m rigged and raptured
-
-
+there were days when i gave my soul
+returned damn wrecked, maybe not intended 
+but they knew side (the) effects
+sliced through the neck with thoughts 
+bleeding straight to cup of things 
+you let me do, now i’m spilling that 
 
 ```
 
