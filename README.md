@@ -33,12 +33,6 @@ bleeding straight to cup of things
 you let me do, now i’m spilling that 
 
 [VERSE]
-there were days when i gave my soul
-returned damn wrecked, maybe not intended 
-but they knew side (the) effects
-sliced through the neck with thoughts 
-bleeding straight to cup of things 
-you let me do, now i’m spilling that 
 
 there were days when i gave my soul
 returned damn wrecked, maybe not intended 
@@ -63,6 +57,15 @@ sliced through the neck with thoughts
 bleeding straight to cup of things 
 you let me do, now i’m spilling that 
 
+[VERSE]
+SIGN OF DAYS WHEN I CHOOSE MY ROAD
+FOR MY OWN SAKE, FACING THE ENLIGHTENMENT 
+OVER NEWLY FOUND IGNORANT (they knew side (the) effects)
+BROKE THROUGH THE CRACK WITH FORCED )sliced through the neck with thoughts 
+FULFILLING AN AGENDA bleeding straight to cup of things 
+away from you, now i’m doing that
+
+YOUR DEAD BODY
 ```
 
 ## Music Video
