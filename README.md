@@ -33,7 +33,6 @@ BLEEDING STRAIGHT TO CUP OF THINGS
 YOU LET ME DO, NOW I'M SPILLING THAT
 
 [VERSE]
-
 there were days when i gave my soul
 returned damn wrecked, maybe not intended 
 but they knew side (the) effects
@@ -85,7 +84,6 @@ OVER NEWLY FOUND ignorant? (they knew side (the) effects)
 BROKE THROUGH THE CRACK WITH FORCED )sliced through the neck with thoughts 
 FULFILLING AN AGENDA bleeding straight to cup of things 
 AWAY FROM YOU, now i’m doing that
-
 (YOUR DEAD BODY)
 
 [CHORUS] ?
