@@ -86,7 +86,7 @@ BROKE THROUGH THE CRACK WITH FORCED )sliced through the neck with thoughts
 FULFILLING AN AGENDA bleeding straight to cup of things 
 AWAY FROM YOU, now i’m doing that
 
-YOUR DEAD BODY
+(YOUR DEAD BODY)
 
 [CHORUS] ?
 ALWAYS KEEPIN' OUT CHILDREN OF NARCISSUS 
