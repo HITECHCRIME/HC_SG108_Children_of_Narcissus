@@ -12,7 +12,7 @@ https://www.youtube.com/watch?v=TyFZg6NFdpA
 
 **Title:** Children of Narcissus / **Featuring:** MOTHNODE
 
-**Production:** x / **Lyrics:** x
+**Production:** $kinny Fiend / **Lyrics:** x
 
 ## Lyrics
 
